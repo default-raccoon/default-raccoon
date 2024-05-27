@@ -4,7 +4,7 @@
   <img src="https://media.giphy.com/media/9c0h8avogl0CyRDjez/giphy.gif" width="400"/>
 </div>
 
-𝖒𝖞 𝖓𝖆𝖒𝖊 𝖎𝖘 𝖆𝖗𝖈𝖍𝖎𝖊
+![𝖒𝖞 𝖓𝖆𝖒𝖊 𝖎𝖘 𝖆𝖗𝖈𝖍𝖎𝖊](https://github.com/default-raccoon/default-raccoon/blob/main/97a7c4beab0ef3318065d4624544c96d.jpg)
 
 𝖒𝖞 𝖕𝖗𝖔𝖓𝖔𝖚𝖓𝖘 𝖆𝖗𝖊 𝖍𝖊\𝖍𝖎𝖘!
 
