@@ -3,7 +3,6 @@
 <div id="header" align="center">
   <img src="https://media.giphy.com/media/9c0h8avogl0CyRDjez/giphy.gif" width="400"/>
 </div>
-![image](https://github.com/default-raccoon/default-raccoon/assets/170769066/c3d49fa6-bda6-4ba5-96a4-30c02de2f540)
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
 𝖒𝖞 𝖓𝖆𝖒𝖊 𝖎𝖘 𝖆𝖗𝖈𝖍𝖎𝖊.
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
