@@ -1,5 +1,5 @@
-## 𝖜𝖊𝖑𝖈𝖔𝖒𝖊 𝖙𝖔 𝖒𝖞 𝖕𝖗𝖔𝖋𝖎𝖑𝖊!<#8B0000>
+## 𝖜𝖊𝖑𝖈𝖔𝖒𝖊 𝖙𝖔 𝖒𝖞 𝖕𝖗𝖔𝖋𝖎𝖑𝖊!
 
 <div id="header" align="center">
-  <img src="https://media.giphy.com/media/M9gbBd9nbDrOTu1Mqx/giphy.gif" width="100"/>
+  <img src="https://tenor.com/ru/view/bleeding-bloody-knife-gif-24561067" width="100"/>
 </div>
