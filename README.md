@@ -12,7 +12,7 @@
 
 ![0c2885eeddccd12beee617c5bc4109b7 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/bd1bb958-bf1f-47ea-8fdc-984bb86982e4)
 
-๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴍʏ ᴘʀᴏɴᴏᴜɴꜱ ᴀʀᴇ ʜᴇ\ʜɪꜱᅠ ᅠ ๋࣭⭑⚝
+๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴍʏ ᴘʀᴏɴᴏᴜɴꜱ ᴀʀᴇ ʜᴇ\ʜɪꜱ\ʜɪᴍᅠ ᅠ ๋࣭⭑⚝
 
 ![0c2885eeddccd12beee617c5bc4109b7 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/bd1bb958-bf1f-47ea-8fdc-984bb86982e4)
 
