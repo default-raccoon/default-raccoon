@@ -6,13 +6,31 @@
 
 ![sunday-sundayhsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/40d7486d-4632-4a3f-bdf3-d2eeb595bd34)
 
+
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴀʀᴄʜɪᴇᅠ ᅠ ๋࣭⭑⚝
+
+![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
 
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴍʏ ᴘʀᴏɴᴏᴜɴꜱ ᴀʀᴇ ʜᴇ\ʜɪꜱᅠ ᅠ ๋࣭⭑⚝
 
+![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
+
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ɪ'ᴍ 18 ʏᴇᴀʀꜱ ᴏʟᴅ, ɪ'ᴍ ᴅʀᴀᴡɪɴɢ!ᅠ ᅠ ๋࣭⭑⚝
 
+![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
+
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ɪɴ ᴘᴏɴʏ ᴛᴏᴡɴ, ʏᴏᴜ ᴄᴀɴ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ, ɪ ᴡɪʟʟ ʙᴇ ᴏɴʟʏ ɢʟᴀᴅᅠ ᅠ ๋࣭⭑⚝
+
+![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
+
+๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴀɢᴇɴᴅᴇʀᅠ ᅠ ๋࣭⭑⚝
+
+![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
+
+
+๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴅɴɪ: ᴍɪɴᴏʀꜱ, ʜᴏᴍᴏᴘʜᴏʙɪᴄ, ʀᴀᴄɪꜱᴛ, ᴘ\ᴅᴏᅠ ᅠ ๋࣭⭑⚝
+
+![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
 
 ![sunday-sunday-hsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/5b76ad2a-f769-425f-b3a8-64023ec81b65)
 
