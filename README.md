@@ -50,7 +50,7 @@
  ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ᅠᅠ ᅠᅠ  <a href="https://ru.pinterest.com/archie_arrr/">
     <img src="https://img.shields.io/badge/pinterest-skyblue?style=for-the-badge&logo=pinterestr&logoColor=skyblue" alt="pinterest Badge"/>
   </a>
- ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ᅠᅠ ᅠᅠ  <a href="https://vk.com/archie_arrr">
+ ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ<a href="https://vk.com/archie_arrr">
     <img src="https://img.shields.io/badge/vk-steelblue?style=for-the-badge&logo=vk&logoColor=steelblue" alt="vk Badge"/>
   </a>
 </div>
