@@ -13,5 +13,6 @@
 
 ๋࣭⭑⚝ - ɪɴ ᴘᴏɴʏ ᴛᴏᴡɴ, ʏᴏᴜ ᴄᴀɴ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ, ɪ ᴡɪʟʟ ʙᴇ ᴏɴʟʏ ɢʟᴀᴅ
 
+![sunday-sunday-hsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/5b76ad2a-f769-425f-b3a8-64023ec81b65)
 
 
