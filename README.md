@@ -42,8 +42,8 @@
   <a href="https://t.me/archie_arrr">
     <img src="https://img.shields.io/badge/telegramm-paleturquoise?style=for-the-badge&logo=linkedin&logoColor=paleturquoise" alt="telegramm Badge"/>
   </a>
-  <a href="your-youtube-URL">
-    <img src="https://img.shields.io/badge/YouTube-red?style=for-the-badge&logo=youtube&logoColor=white" alt="Youtube Badge"/>
+  <a href="https://www.youtube.com/channel/UC9KsquJjvOFuPMQo-P45vgg">
+    <img src="https://img.shields.io/badge/youtube-powderblue?style=for-the-badge&logo=youtube&logoColor=powderblue" alt="youtube Badge"/>
   </a>
   <a href="your-twitter-URL">
     <img src="https://img.shields.io/badge/Twitter-blue?style=for-the-badge&logo=twitter&logoColor=white" alt="Twitter Badge"/>
