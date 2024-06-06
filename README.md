@@ -1,7 +1,8 @@
 ## ♱ 𝖜𝖊𝖑𝖈𝖔𝖒𝖊 𝖙𝖔 𝖒𝖞 𝖕𝖗𝖔𝖋𝖎𝖑𝖊! ♱
 
 <div id="header" align="center">
-  <img src="https://tenor.com/ru/view/sunday-sundayhsr-hsr-honkai-robin-gif-2370330092551032078" width="400"/>
+  <img src="![sunday-sunday-hsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/5b76ad2a-f769-425f-b3a8-64023ec81b65)
+" width="400"/>
 </div>
 
 ๋࣭⭑⚝ - ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴀʀᴄʜɪᴇ
