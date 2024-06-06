@@ -55,4 +55,5 @@
   </a>
 </div>
 
-![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
+![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)
+
