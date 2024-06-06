@@ -39,7 +39,7 @@
 
 
 <div id="badges">
-  <a href="your-linkedin-URL">
+  <a href="https://t.me/archie_arrr">
     <img src="https://img.shields.io/badge/telegramm-paleturquoise?style=for-the-badge&logo=linkedin&logoColor=paleturquoise" alt="telegramm Badge"/>
   </a>
   <a href="your-youtube-URL">
