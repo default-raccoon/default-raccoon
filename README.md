@@ -49,7 +49,7 @@
     <img src="https://img.shields.io/badge/youtube-powderblue?style=for-the-badge&logo=youtube&logoColor=powderblue" alt="youtube Badge"/>
   </a>
 <a href="https://www.tumblr.com/archie-arrr/">
-    <img src="https://img.shields.io/badge/tumblr-white?style=for-the-badge&logo=tumblr&logoColor=darkcyan" alt="tumblr Badge"/>
+    <img src="https://img.shields.io/badge/tumblr-darkcyan?style=for-the-badge&logo=tumblr&logoColor=white" alt="tumblr Badge"/>
   </a>
 <a href="https://vk.com/archie_arrr">
     <img src="https://img.shields.io/badge/vk-white?style=for-the-badge&logo=vk&logoColor=steelblue" alt="vk Badge"/>
