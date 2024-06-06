@@ -48,8 +48,8 @@
 <a href="https://www.youtube.com/channel/UC9KsquJjvOFuPMQo-P45vgg">
     <img src="https://img.shields.io/badge/youtube-powderblue?style=for-the-badge&logo=youtube&logoColor=powderblue" alt="youtube Badge"/>
   </a>
-<a href="https://ru.pinterest.com/archie_arrr/">
-    <img src="https://img.shields.io/badge/pinterest-skyblue?style=for-the-badge&logo=pinterestr&logoColor=skyblue" alt="pinterest Badge"/>
+<a href="https://www.tumblr.com/archie-arrr/">
+    <img src="https://img.shields.io/badge/tumblr-skyblue?style=for-the-badge&logo=tumblr&logoColor=skyblue" alt="tumblr Badge"/>
   </a>
 <a href="https://vk.com/archie_arrr">
     <img src="https://img.shields.io/badge/vk-steelblue?style=for-the-badge&logo=vk&logoColor=steelblue" alt="vk Badge"/>
