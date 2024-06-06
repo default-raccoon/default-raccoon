@@ -2,11 +2,13 @@
 
 ## ⚝ᅠ ᅠᅠ ᅠᅠ ᅠᅠ  ᅠ𝕀 𝕨𝕚𝕝𝕝 𝕓𝕖 𝕧𝕖𝕣𝕪 𝕘𝕝𝕒𝕕 𝕚𝕗 𝕪𝕠𝕦 𝕥𝕒𝕜𝕖 𝕥𝕙𝕖 𝕥𝕚𝕞𝕖 𝕥𝕠 𝕣𝕖𝕒𝕕 𝕞𝕪 𝕡𝕣𝕠𝕗𝕚𝕝𝕖   ᅠ ⚝
 
-###
+### 
+
+![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
 
  ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ  ᅠᅠ ᅠ ᅠᅠ ᅠᅠ![sunday-sundayhsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/40d7486d-4632-4a3f-bdf3-d2eeb595bd34)
 
-![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
+![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
 
  ᅠᅠ ᅠ ᅠᅠ ᅠ![0c2885eeddccd12beee617c5bc4109b7 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/bd1bb958-bf1f-47ea-8fdc-984bb86982e4)![c2cf0362e1f8792fd527f83edbf3c5e7 (2)](https://github.com/default-raccoon/default-raccoon/assets/170769066/435ad427-74a8-45e8-9c9f-6c560896b32b)![c2cf0362e1f8792fd527f83edbf3c5e7 (2)](https://github.com/default-raccoon/default-raccoon/assets/170769066/435ad427-74a8-45e8-9c9f-6c560896b32b)![0c2885eeddccd12beee617c5bc4109b7 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/bd1bb958-bf1f-47ea-8fdc-984bb86982e4)
 
@@ -36,7 +38,7 @@
 
  ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ![sunday-sunday-hsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/5b76ad2a-f769-425f-b3a8-64023ec81b65)
 
-![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
+![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
 
 <div id="badges">
   <a href="https://t.me/archie_arrr">
@@ -53,4 +55,4 @@
   </a>
 </div>
 
-![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
+![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
