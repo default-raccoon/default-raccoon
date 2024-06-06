@@ -8,17 +8,29 @@
 
 
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴀʀᴄʜɪᴇᅠ ᅠ ๋࣭⭑⚝
+
 ![0c2885eeddccd12beee617c5bc4109b7](https://github.com/default-raccoon/default-raccoon/assets/170769066/d31fb084-d6d5-412a-99f0-6441d303ec77)
+
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴍʏ ᴘʀᴏɴᴏᴜɴꜱ ᴀʀᴇ ʜᴇ\ʜɪꜱᅠ ᅠ ๋࣭⭑⚝
+
 ![0c2885eeddccd12beee617c5bc4109b7](https://github.com/default-raccoon/default-raccoon/assets/170769066/d31fb084-d6d5-412a-99f0-6441d303ec77)
+
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ɪ'ᴍ 18 ʏᴇᴀʀꜱ ᴏʟᴅ, ɪ'ᴍ ᴅʀᴀᴡɪɴɢ!ᅠ ᅠ ๋࣭⭑⚝
+
 ![0c2885eeddccd12beee617c5bc4109b7](https://github.com/default-raccoon/default-raccoon/assets/170769066/d31fb084-d6d5-412a-99f0-6441d303ec77)
+
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ɪɴ ᴘᴏɴʏ ᴛᴏᴡɴ, ʏᴏᴜ ᴄᴀɴ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ, ɪ ᴡɪʟʟ ʙᴇ ᴏɴʟʏ ɢʟᴀᴅᅠ ᅠ ๋࣭⭑⚝
+
 ![0c2885eeddccd12beee617c5bc4109b7](https://github.com/default-raccoon/default-raccoon/assets/170769066/d31fb084-d6d5-412a-99f0-6441d303ec77)
+
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴀɢᴇɴᴅᴇʀᅠ ᅠ ๋࣭⭑⚝
+
 ![0c2885eeddccd12beee617c5bc4109b7](https://github.com/default-raccoon/default-raccoon/assets/170769066/d31fb084-d6d5-412a-99f0-6441d303ec77)
+
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴅɴɪ: ᴍɪɴᴏʀꜱ, ʜᴏᴍᴏᴘʜᴏʙɪᴄ, ʀᴀᴄɪꜱᴛ, ᴘ\ᴅᴏᅠ ᅠ ๋࣭⭑⚝
+
 ![0c2885eeddccd12beee617c5bc4109b7](https://github.com/default-raccoon/default-raccoon/assets/170769066/d31fb084-d6d5-412a-99f0-6441d303ec77)
+
 
 ![sunday-sunday-hsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/5b76ad2a-f769-425f-b3a8-64023ec81b65)
 
