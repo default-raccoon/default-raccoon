@@ -41,18 +41,18 @@
 
 <div id="badges">
  ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠ<a href="https://t.me/archie_arrr">
-    <img src="https://img.shields.io/badge/telegramm-paleturquoise?style=for-the-badge&logo=linkedin&logoColor=paleturquoise" alt="telegramm Badge"/>
+    <img src="https://img.shields.io/badge/telegramm-white?style=for-the-badge&logo=linkedin&logoColor=paleturquoise" alt="telegramm Badge"/>
   </a></a>
 <a href="https://ru.pinterest.com/archie_arrr/">
-    <img src="https://img.shields.io/badge/pinterest-skyblue?style=for-the-badge&logo=pinterestr&logoColor=skyblue" alt="pinterest Badge"/>
+    <img src="https://img.shields.io/badge/pinterest-white?style=for-the-badge&logo=pinterestr&logoColor=skyblue" alt="pinterest Badge"/>
 <a href="https://www.youtube.com/channel/UC9KsquJjvOFuPMQo-P45vgg">
     <img src="https://img.shields.io/badge/youtube-powderblue?style=for-the-badge&logo=youtube&logoColor=powderblue" alt="youtube Badge"/>
   </a>
 <a href="https://www.tumblr.com/archie-arrr/">
-    <img src="https://img.shields.io/badge/tumblr-darkcyan?style=for-the-badge&logo=tumblr&logoColor=skyblue" alt="tumblr Badge"/>
+    <img src="https://img.shields.io/badge/tumblr-white?style=for-the-badge&logo=tumblr&logoColor=darkcyan" alt="tumblr Badge"/>
   </a>
 <a href="https://vk.com/archie_arrr">
-    <img src="https://img.shields.io/badge/vk-steelblue?style=for-the-badge&logo=vk&logoColor=steelblue" alt="vk Badge"/>
+    <img src="https://img.shields.io/badge/vk-white?style=for-the-badge&logo=vk&logoColor=steelblue" alt="vk Badge"/>
   </a>
  
 </div>
