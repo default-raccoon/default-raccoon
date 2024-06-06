@@ -4,7 +4,7 @@
 
 ### 
 
-![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
+![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)
 
  ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ  ᅠᅠ ᅠ ᅠᅠ ᅠᅠ![sunday-sundayhsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/40d7486d-4632-4a3f-bdf3-d2eeb595bd34)
 
@@ -38,7 +38,7 @@
 
  ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ![sunday-sunday-hsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/5b76ad2a-f769-425f-b3a8-64023ec81b65)
 
-![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/fb235f3f-756c-497f-b3c6-7739980ef1d0)
+![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)
 
 <div id="badges">
   <a href="https://t.me/archie_arrr">
@@ -55,5 +55,5 @@
   </a>
 </div>
 
-![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)
+![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)
 
