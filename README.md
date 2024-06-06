@@ -9,23 +9,23 @@
 
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴍʏ ɴᴀᴍᴇ ɪꜱ ᴀʀᴄʜɪᴇᅠ ᅠ ๋࣭⭑⚝
 
-![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
+![cf04586a21e32ce7cadbbfcbf99cd624 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/c747dc09-59d2-49ee-8a0c-34a04e4d774e)
 
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴍʏ ᴘʀᴏɴᴏᴜɴꜱ ᴀʀᴇ ʜᴇ\ʜɪꜱᅠ ᅠ ๋࣭⭑⚝
 
-![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
+![cf04586a21e32ce7cadbbfcbf99cd624 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/c747dc09-59d2-49ee-8a0c-34a04e4d774e)
 
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ɪ'ᴍ 18 ʏᴇᴀʀꜱ ᴏʟᴅ, ɪ'ᴍ ᴅʀᴀᴡɪɴɢ!ᅠ ᅠ ๋࣭⭑⚝
 
-![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
+![cf04586a21e32ce7cadbbfcbf99cd624 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/c747dc09-59d2-49ee-8a0c-34a04e4d774e)
 
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ɪɴ ᴘᴏɴʏ ᴛᴏᴡɴ, ʏᴏᴜ ᴄᴀɴ ɪɴᴛᴇʀᴀᴄᴛ ᴡɪᴛʜ ᴍᴇ, ɪ ᴡɪʟʟ ʙᴇ ᴏɴʟʏ ɢʟᴀᴅᅠ ᅠ ๋࣭⭑⚝
 
-![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
+![cf04586a21e32ce7cadbbfcbf99cd624 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/c747dc09-59d2-49ee-8a0c-34a04e4d774e)
 
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴀɢᴇɴᴅᴇʀᅠ ᅠ ๋࣭⭑⚝
 
-![cf04586a21e32ce7cadbbfcbf99cd624](https://github.com/default-raccoon/default-raccoon/assets/170769066/0a19ac85-3030-4b35-9456-701d80eb2334)
+![cf04586a21e32ce7cadbbfcbf99cd624 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/c747dc09-59d2-49ee-8a0c-34a04e4d774e)
 
 
 ๋࣭⭑⚝  ݁ ᅠ ᅠ- ᴅɴɪ: ᴍɪɴᴏʀꜱ, ʜᴏᴍᴏᴘʜᴏʙɪᴄ, ʀᴀᴄɪꜱᴛ, ᴘ\ᴅᴏᅠ ᅠ ๋࣭⭑⚝
