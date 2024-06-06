@@ -40,7 +40,7 @@
 
  ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ᅠᅠ ᅠᅠ   ![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)
 
-<div id="badges">
+ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠ<div id="badges">
 <a href="https://t.me/archie_arrr">
     <img src="https://img.shields.io/badge/telegramm-paleturquoise?style=for-the-badge&logo=linkedin&logoColor=paleturquoise" alt="telegramm Badge"/>
   </a>
