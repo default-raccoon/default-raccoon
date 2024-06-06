@@ -41,16 +41,16 @@
  ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ᅠᅠ ᅠᅠ   ![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)
 
 <div id="badges">
- ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ᅠᅠ ᅠᅠ  <a href="https://t.me/archie_arrr">
+<a href="https://t.me/archie_arrr">
     <img src="https://img.shields.io/badge/telegramm-paleturquoise?style=for-the-badge&logo=linkedin&logoColor=paleturquoise" alt="telegramm Badge"/>
   </a>
- ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ᅠᅠ ᅠᅠ  <a href="https://www.youtube.com/channel/UC9KsquJjvOFuPMQo-P45vgg">
+<a href="https://www.youtube.com/channel/UC9KsquJjvOFuPMQo-P45vgg">
     <img src="https://img.shields.io/badge/youtube-powderblue?style=for-the-badge&logo=youtube&logoColor=powderblue" alt="youtube Badge"/>
   </a>
- ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ᅠᅠ ᅠᅠ  <a href="https://ru.pinterest.com/archie_arrr/">
+<a href="https://ru.pinterest.com/archie_arrr/">
     <img src="https://img.shields.io/badge/pinterest-skyblue?style=for-the-badge&logo=pinterestr&logoColor=skyblue" alt="pinterest Badge"/>
   </a>
- ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ᅠᅠ ᅠᅠ  <a href="https://vk.com/archie_arrr">
+<a href="https://vk.com/archie_arrr">
     <img src="https://img.shields.io/badge/vk-steelblue?style=for-the-badge&logo=vk&logoColor=steelblue" alt="vk Badge"/>
   </a>
 </div>
