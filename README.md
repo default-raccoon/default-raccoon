@@ -41,6 +41,9 @@
 
  ᅠᅠ ᅠ ᅠᅠ ᅠ![sunday-sunday-hsr](https://github.com/default-raccoon/default-raccoon/assets/170769066/5b76ad2a-f769-425f-b3a8-64023ec81b65)ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠᅠ ᅠ ᅠᅠ ᅠ ᅠᅠ ᅠᅠ ![doc_2024-06-13_04-22-02 (1)](https://github.com/default-raccoon/default-raccoon/assets/170769066/70b2cec9-c34b-4e39-87ab-229036390f4d)
 
+ｃｒ ｇｉｆ ； ＠ｉｌｙｍａｎａｓａｍａ ｏｎ ｔｔ
+ｃｒ ａｖａｔａｒ ； ｓｖｉｔｅｅｒ （Ｘ／Ｔｗｉｔｔｅｒ）
+
 
 ### ᅠᅠ ᅠᅠ ᅠᅠ  ᅠᅠ ![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)![e7c4946cb40c5fa95de6bf56ab77990b](https://github.com/default-raccoon/default-raccoon/assets/170769066/6c97336e-8cef-4165-8ac7-2382754b92e9)
 
