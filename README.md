@@ -2,7 +2,7 @@
 
 ⋆![b955ff98db0b5009ee740a82aabf70d4](https://github.com/user-attachments/assets/1a22395e-1c61-404f-8454-c276d4a1e6c4) ⋆
 
-｡ hi! my name is archie\evgenyᅠ⋆
+｡ hi! my name is archie\evgeny\raccoon\delroy\delᅠ⋆
 
 ｡  my pronouns are he\him\his ⋆ 
 
