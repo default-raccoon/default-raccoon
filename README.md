@@ -15,7 +15,7 @@
  
 ｡  agender ⋆
 
-｡  dni: minors, homophobes, sexists, p\do, racist, proshippers ⋆
+｡  dni: minors, homophobes, sexists, p\do, racist, proshippers, darkshippers ⋆
 
 ｡  int, c+h, w2i ⋆
 
