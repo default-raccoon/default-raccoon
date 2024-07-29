@@ -7,7 +7,7 @@
 
 𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼
 
-｡ hi! my name is archie\evgeny\raccoon\delroy\delᅠ⋆
+｡ hi! my name is archie\zhenya\raccoon\delroy\delᅠ⋆
 
 ｡  my pronouns are he\him\his ⋆ 
 
