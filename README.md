@@ -11,7 +11,7 @@
 
 ｡  my pronouns are he\him\his. agender  ⋆ 
 
-｡ i am 18 years old, I'm drawingᅠ⋆
+｡ i'm 18 years old, I'm drawingᅠ⋆
  
 ｡  dni: minors, homophobes, sexists, p\do, racist, proshippers, darkshippers ⋆
 
