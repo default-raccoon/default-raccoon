@@ -7,24 +7,22 @@
 
 𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼
 
-｡ hi! my name is archie\zhenya\raccoon\delroy\delᅠ⋆
+｡ hi! my name is archie\zhenya\raccoon\delroy\del,ᅠ⋆
 
-｡  my pronouns are he\him\his ⋆ 
+｡  my pronouns are he\him\his. agender,  ⋆ 
 
-｡ i am 18 years old, i drawᅠ⋆
+｡ i am 18 years old, I'm drawingᅠ⋆
  
-｡  agender ⋆
+｡  dni: minors, homophobes, sexists, p\do, racist, proshippers, darkshippers, ⋆
 
-｡  dni: minors, homophobes, sexists, p\do, racist, proshippers, darkshippers ⋆
+｡  int, c+h, w2i, ⋆
 
-｡  int, c+h, w2i ⋆
-
-｡  ru\eng ⋆
+｡  ru\eng, ⋆
 
 
-｡  my fandoms: regretevator, phighting, pressure, mandela catalogue, honkai star rail, 8:11, identity V, gasa4, persona 5 royal, doors, danganronpa, everymanhybrid, the slenderverse, marble hornets, sally face, unicorn wars, law of talos, broken colors, life is strange 1,2, friday night funkin, truecrime, the walten files, happy tree friends, welcome home, amanda the adventure, hypmic, omori, south park, evade, needy girl overdose and etc ⋆
+｡  my fandoms: regretevator, phighting, pressure, mandela catalogue, honkai star rail, 8:11, identity V, gasa4, persona 5 royal, doors, danganronpa, everymanhybrid, the slenderverse, marble hornets, sally face, unicorn wars, law of talos, broken colors, life is strange 1,2, friday night funkin, truecrime, the walten files, happy tree friends, welcome home, amanda the adventure, hypmic, omori, south park, evade, needy girl overdose and etc, ⋆
 
-｡  my kinnies: mark heathcliff, poob, ryker dublin, naib subedar, nagito komaeda, ren amamiya, sunday, jonah marshall, max caulfield, basil, cashier    ⋆
+｡  my kinnies: mark heathcliff, poob, ryker dublin, naib subedar, nagito komaeda, ren amamiya, sunday, jonah marshall, max caulfield, basil, cashier,    ⋆
 ㅤ
 
 𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼𓆉𓆝 𓆟 𓆞 𓆝 𓆟𓇼
