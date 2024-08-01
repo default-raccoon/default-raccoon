@@ -13,7 +13,7 @@
 
 ｡ i'm 18 years old, I'm drawingᅠ⋆
  
-｡  dni: minors, homophobes, sexists, p\do, racist, proshippers, darkshippers ⋆
+｡  dni: homophobes, sexists, p\do, racist, proshippers, darkshippers ⋆
 
 ｡  int, c+h, w2i ⋆
 
