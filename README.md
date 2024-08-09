@@ -20,7 +20,7 @@
 ｡  ru\eng ⋆
 
 
-｡  my fandoms: regretevator, phighting, pressure, mandela catalogue, honkai star rail, 8:11, identity V, gasa4, persona 5 royal, doors, danganronpa, everymanhybrid, the slenderverse, marble hornets, sally face, unicorn wars, law of talos, broken colors, life is strange 1,2, friday night funkin, truecrime, the walten files, happy tree friends, welcome home, amanda the adventure, hypmic, omori, south park, evade, needy girl overdose and etc ⋆
+｡  my fandoms: regretevator, phighting, pressure, mandela catalogue, honkai star rail, 8:11, identity V, gasa4, persona 5 royal, doors, danganronpa, everymanhybrid, the slenderverse, marble hornets, sally face, unicorn wars, law of talos, broken colors, life is strange 1,2, friday night funkin, truecrime, the walten files, happy tree friends, welcome home, amanda the adventure, hypmic, omori, south park, evade, needy girl overdose, homestuck, clockwork orange and etc ⋆
 
 ｡  my kinnies: mark heathcliff, poob, ryker dublin, naib subedar, nagito komaeda, ren amamiya, sunday, jonah marshall, max caulfield, basil, cashier    ⋆
 ㅤ
